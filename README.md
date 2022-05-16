@@ -1,5 +1,4 @@
-Olá, eu sou MICHAEL 
-Estudo programaçâo
-solteiro
-apenas sorraya
-+55/41
+Olá, eu me chamo MICHAEL
+FAÇO PARTE DE UMA DAS MAIORES EMPRESAS DO MUNDO, PROJETANDO PRODUTOS ELETRôNICOS DE ALTA QUALIDADE PARA CONSUMO.
+🏃‍♂️atleta
+🇵🇹Lisboa
